@@ -3,7 +3,7 @@ Fortnite: The Game That Revolutionized Battle Royale
 
 Since its release in 2017, Fortnite has transformed the landscape of gaming, becoming one of the most popular video games in the world. Created by Epic Games, Fortnite started as a cooperative survival game but quickly evolved into a battle royale phenomenon that attracted millions of players worldwide. Known for its unique blend of survival mechanics, building mechanics, and fast-paced combat, Fortnite is more than just a game; it's a cultural event.
 
-**[✅✅CLICK HERE TO GET CODES INSTANTLY✅✅](codeshub.greenvlog.com/qwerty)**
+**[✅✅CLICK HERE TO GET CODES INSTANTLY✅✅](https://codeshub.greenvlog.com/qwerty/)**
 
 
 The Battle Royale Phenomenon Fortnite is best known for its Battle Royale mode, a free-to-play game where 100 players drop onto an island and fight until only one player or team remains. Unlike other battle royale games, Fortnite incorporates a unique building mechanic. Players can gather materials from the environment and use them to create structures like walls, ramps, and forts for both defense and strategic advantage. This mechanic adds a fresh layer of depth to the genre and makes Fortnite stand out from other battle royales like PUBG or Apex Legends.
